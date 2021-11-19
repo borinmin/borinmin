@@ -5,4 +5,3 @@
   - I'm happy to help u start machine leanring
 - I'm enjoy writing blogs:
   - [my medium profile](https://medium.com/@minborin1995)
-- I'm enjoy play cyber challenges
